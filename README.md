@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @official-tunka
+- 👀 I’m interested in earning bucks
+- 🌱 I’m currently learning html css and javascript
+- 💞️ I’m looking to collaborate on freelancing projects
+- 📫 How to reach me just dm me on insta or email
+- 😄 Pronouns: bat/man
+- ⚡ Fun fact: im actually batman real
